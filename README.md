@@ -1,2 +1,2 @@
 # cyber
-all about cyber .
+all about cyber security and online.
